@@ -1,0 +1,1 @@
+![[Zettelkasten steps.png]]![[Waleed 2023.pdf]]
